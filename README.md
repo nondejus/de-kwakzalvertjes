@@ -1,3 +1,0 @@
-# de-kwakzalvertjes
-
-avonturen van doctor nekschot
